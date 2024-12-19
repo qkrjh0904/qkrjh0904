@@ -1,5 +1,6 @@
 ### 👨‍💻Careers.
-- 2020.07 ~ Midas IT
+- 2024.04 ~ now 42dot 
+- 2020.07 ~ 2024.04 Midas IT
 
 ### 📫Contact.
 - email : <qkrwjdgh0904@naver.com>
